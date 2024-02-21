@@ -1,0 +1,1 @@
+We don't collect any data whatsoever. The app only used for trial.
